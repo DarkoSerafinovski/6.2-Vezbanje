@@ -1,1 +1,1 @@
-asdasdadasdas
+Novi tekst
